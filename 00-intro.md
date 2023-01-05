@@ -16,6 +16,8 @@ With full pockets, they brought favors. With unrestricted access, came the secre
 
 Being the closest to the new capital - the Cradle - the Mayans - one of the Union Council families - quickly became a favorite in the inner circles of the Banks. Gossip and bribe led to prestige. Prestige led to voice. Voice led to law. And said the law that a Mayan should be the Chancelor. The Council debated and discussed and feared that a single ruler would foster problems of old.
 
-With growing fear in one side and growing power on the other, another bloody time was prospected. But the Banks and the People knew that when giants fight, the earth get crushed. The balance tipped to the power side and the new law banned the Council. Exiles would be spared if they agreed to flee and never return. They did and no blood was shed.
+With growing fear in one side and growing power on the other, another bloody time was prospected. But the Banks and the People knew that when giants fight, the earth get crushed. The balance tipped to the power side and the new law banned the Council. Exiles would be spared if they agreed to flee and never return.
+
+They did and no blood was shed, but the Union was mortally wounded and every family swore that no more congregated power would survive in The Land. They fled, but their eyes stayed behind, searching for a chance to rise.
 
 The Chancelor and his family ruled alone for People and Bank, for expansion and prosperity, for secret and favor. Alone, but not for long...
