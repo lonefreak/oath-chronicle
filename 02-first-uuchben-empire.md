@@ -40,5 +40,7 @@ The Quarian attacked the Perfidiously and lost to a 40-sized defense army. As a 
 
 With the Darkest Secret - that he was infact the righteous and lawful heir to the Land - in his possession, The Perfidiously came back to power, taking over an Empire that was already in ruins.
 
+Offered Citizenship to Portokali - accepted - and his owns family, which also accepted.
+
 ## Game Time
 2:06:11, without the next game setup
