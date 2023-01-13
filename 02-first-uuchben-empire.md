@@ -12,25 +12,21 @@ Orange - The Portokali - Fabricio
 
 ## Overview
 
-The Empire controls all territories and ruled from The Plains. The Quarian, Citizens of The Empire, sat at the rich Salt Flats. The Portokali sat at the Rocky Coast. The Perfidiously sat at the Buried Giant.
+The Uuchben Empire controlled the Land as a whole, every territory under its firm grip. For 10 years they ruled from The Plains. In that time the Empire did not expanded, but it did not shrink either. 
 
-The Perfidiously took the Darkest Secret and became the OK.
+The Quarian, First Citizens of The Empire, sat at the rich Salt Flats, gorging on the delightful landscape and priming on their vocation for the strategy and siege. The Portokali sat at the Rocky Coast.
 
-The Quarian foster a huge army.
+The Perfidiously sat at the Buried Giant, where they found root on words of a great and old injustice. They still haven't forgotten the fate of the old Chancelor and knew that their only was to try and uproot the secrets buried under the giant. On their search they found the Darkest Secret assembly, the one that would make them the Oathkeeper.
 
-The Chancelor instated tolls in the empire and The Portokali tried to take it over, but failed and lost much of their strength. In retaliation they let know that they would support the Perfidiously, the Usurper.
+Journey through the Land, the Quarian fostered a huge army. Being a General in Arms and First Citizen, their army was the strongest in the Empire. Granting support to the Chancelor allow the Uuchben to instate tolls all around the Land.
 
-Perfidiously, the Usurper, found the Truthful Harp.
+The people were not happy with the tolls, but Exiled families were impatient with their shortness of resources and not being able to roam around to take car of their own business. Finally the Portokali tried to take over the Toll Roads, but failed and lost much of their strength. In retaliation they let know that they would support the Perfidiously, the Usurper.
 
-In response to the threat, the Chancelor took the Darkest Secret and became the OK. 
-
-The Beast bank became the richest.
-
-The Perfidiously made the 3 Discord their adviser.
+In response to the threat, the Chancelor silenced the secrets that the Perfidiously had, sequestering the confident members of the Dark Secret assembly, being again deemed the Oathkeeper. The Perfidiously decided then to double down on their bet and brought more Discord advisers, making them thier main support. In the meantime the Bank of the Beasts bank became the richest one.
 
 The Portokali made another attempt to take over the Toll Roads in the Buried Giant. They succeeded, but had to sacrifice a lot of their strength.
 
-The Perfidiously accumulates a lot of Secrets and take the Darkest Secret back, becoming the OK with a huge advantage.
+Plotting and searching for ways to foster new rumors, the Perfidiously were back on their feet and located the sequestered The Perfidiously accumulates a lot of Secrets and take the Darkest Secret back, becoming the Oathkeeper with a huge advantage.
 
 The Chancelor came back to the Buried Giant and took the Toll Roads back, puching the Portokali to the Rocky Coast.
 

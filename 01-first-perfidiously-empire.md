@@ -5,12 +5,12 @@
 
 ## Families
 
-Chancelor - The Perfidiously
-Yellow - The Arkem
-Blue - 
-White - The Uuchben
+Chancelor - The Perfidiously - Gustavo
+Yellow - The Arkem - Leslie
+Blue - The Quarian - Tulio
+White - The Uuchben - Andrei
 Black - 
-Orange - The Portokali
+Orange - The Portokali - Fabricio
 
 ## Overview
 
